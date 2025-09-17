@@ -10,3 +10,7 @@ I have this second thought mainly because of how AI is perceived as cheating too
 
 [**Article Link**](https://www.wired.com/story/meta-ai-job-interview-coding/)
 
+
+I thought your summary was very good and the topic can be applied to school as well. I wonder how professors/teachers will start to incorporate AI into their learning now that it is being used by these big corporations. 
+
+Edited by Jeffrey Chen
